@@ -1,3 +1,3 @@
 - Rio de Janeiro, Brazil
-- Msc candidate in Economics - FGV EPGE
+- MSc. candidate in Economics - FGV EPGE
 - BSc. in Economics - Insper
